@@ -1,2 +1,0 @@
-Pero
-Nenad 
